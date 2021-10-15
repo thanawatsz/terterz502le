@@ -1,1 +1,0 @@
-# terterz502le
